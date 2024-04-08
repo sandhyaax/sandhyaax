@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sandhyaax
 - 👀 I’m interested in Designing and coding.
 - 🌱 I’m currently learning various computer languages.
-- 📫 How to reach me @sandhyashalini779@gmail.com
+- 📫 Reach me @sandhyashalini779@gmail.com
 - ⚡ Fun fact: I love painting ,singing ,dancing , reading books and cooking as well.
 
 <!---
